@@ -6,9 +6,9 @@
 ## Members
 - Walaa Saif Aleslam ( Leader ) – 444200888  
 - Noor Algumlas – 444200811  
-- Walaa Abdullah Alhajri – 443201299  
 - Rawan Munif Alshammari – 444200348  
-- Jana Khalid Almohsen – 444204517  
+- Jana Khalid Almohsen – 444204517
+- Walaa Abdullah Alhajri – 443201299  
 
 ---
 
